@@ -33,4 +33,4 @@ To start with, here is the most recent project I have worked on
 If you would like to reach out to me, please feel free to get in touch with my:
 
 - Email: [robbinwilson24@gmail.com](mailto:robbinwilson24@gmail.com)
-- LinkedIn: [https://www
+- LinkedIn: [https://www.linkedin.com/in/robbinwilson24/](https://www.linkedin.com/in/robbinwilson24/)
